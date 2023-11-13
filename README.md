@@ -8,4 +8,4 @@ werkgjnwkjnegrkjnwegkjn
 
 ### Warning
 
-This homework is awful, I was lied to, I was tricked, I'm better now. Go look at some other repo I've made.
+This homework is great, I was told the truth about everything, I was definitely not tricked, I've always been great. This repo is good, my instructor is very kind.
